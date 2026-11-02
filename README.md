@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @AckRub<br>- 👀 I’m interested in both front-end and back-end.<br>- 🌱 I’m currently working on my Website.<br>- 💞️ I’m looking to collaborate with anyone.<br>- 📫 How to reach me? soon i'll finish my website and i'll link it here<br>- 😄 Pronouns: Ack/Rub (he/him)<br>- ⚡ Fun fact: Humans share 60% of their DNA with bananas
+-  Hi, I’m @AckRub<br>-  I’m interested in both front-end and back-end.<br>-  I’m currently working on my Website.<br>-  I’m looking to collaborate with anyone.<br>-  How to reach me? soon i'll finish my website and i'll link it here<br>-  Pronouns: Ack/Rub (he/him)<br>-  Fun fact: Humans share 60% of their DNA with bananas
 
 
 ## 🌐 Socials:
